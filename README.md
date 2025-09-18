@@ -1,4 +1,4 @@
- [![MasterHead](https://prd-cyberhub.oss-me-central-1.aliyuncs.com/uploads/GLEipp0EQTHJRLxFHHRMAj42ZFXgwH)
+ [![MasterHead](https://pecb.com/wp-content/uploads/2025/07/pursuing-ethical-hacking-career.jpg)
 <h3 align="center">Computer Engineering Student (Amasya University)</h3>
 
 - 📫 You can reach me from: **yusuftaha0529@gmail.com**
