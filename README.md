@@ -1,4 +1,4 @@
- [![MasterHead](https://www.canva.com/design/DAGUaeNA8Lw/rsCmnWFtwT-BfcbObu2u_w/edit?utm_content=DAGUaeNA8Lw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+ [![MasterHead](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcyberhub.sa%2Fposts%2F1380&psig=AOvVaw3eoUqhOPWKYb3bSLPHEgPe&ust=1758304535105000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCPDk-oHx4o8DFQAAAAAdAAAAABAE)
 <h3 align="center">Computer Engineering Student (Amasya University)</h3>
 
 - 📫 You can reach me from: **yusuftaha0529@gmail.com**
