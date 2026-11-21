@@ -1,7 +1,7 @@
  [![MasterHead](https://pecb.com/wp-content/uploads/2025/07/pursuing-ethical-hacking-career.jpg)
 <h3 align="center">Computer Engineering Student (Amasya University)</h3>
 
-- 📫 You can reach me from: **yusuftaha0529@gmail.com**
+- 📫 You can reach me from: **yusuftahaalici@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
